@@ -10,10 +10,14 @@ Week 2
 --------
 This week I went to Belfast castle and took some photos. 
 
-favourite photographers
+favourite photographers - Diane Arbus
+
+This week in our lecture we looked at harmony and proportion within photographs. We looked at different photographers who all had different views and rules on how to take photos. 
 
 Week 3
 -------
 look at different tone of voice for photos 
 
 how instagram and social media has changed photography
+
+look at different photographers that use instgram exclusively. 
