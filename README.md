@@ -17,7 +17,7 @@ This week in our lecture we looked at harmony and proportion within photographs.
 
 Week 3
 -------
-look at different tone of voice for photos 
+look at different tone of voice for photos.
 
 how instagram and social media has changed photography
 
