@@ -48,12 +48,16 @@ Today was the hand in for our book covers. I did two sets of covers because I co
 
 Set 1 
 [The Witches](https://www.flickr.com/photos/80894004@N03/16855241141/)
+
 [Fantastic Mr Fox](https://www.flickr.com/photos/80894004@N03/16830422156/in/photostream/)
+
 [Charlie and the Chocolate Factory](https://www.flickr.com/photos/80894004@N03/16855131282/in/photostream/)
 
 Set 2
 [Charlie and the Chocolate Factory](https://www.flickr.com/photos/80894004@N03/16708024715/in/photostream/)
+
 [Fantastic Mr Fox](https://www.flickr.com/photos/80894004@N03/16521914139/in/photostream/)
+
 [The Witches](https://www.flickr.com/photos/80894004@N03/16682101596/in/photostream/)
 
 
