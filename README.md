@@ -25,17 +25,36 @@ look at different photographers that use instgram exclusively.
 
 Week 4
 -------
+This week we had a talk by two guys from Fresh Made Media. There is an oppertunity for a paid placement over the summer which also lands you a garenteed placement in third year. 
 
+This week we had a guest lecture from Richard Weston on art direction. He told us an art director doesnt make the product but garethers ideas and recognises a tone of voice for the desired product. Through art direction you can enhance the meaning of products. 
+
+We were given our second project for this module this week. We have to design three book covers and were given a list of genres to choose from. I picked childrens classics. From what I gathered from Richards talk was that we have to plan all our book covers and gather alot of materials that inspire our vision. 
 Week 5
 ------
+This week we looked at different illustrators, local and worldwide, who all have different styles and how they fit different themes. 
 
 Week 6
 ------
+Lecture canceled
 
 Week 7
 ------
+Lecture canceled
 
 Week 8
 ------
+Today was the hand in for our book covers. I did two sets of covers because I coundlt commit to one direction I wanted to take. I choose to do Roald Dahl books. After doing my research into this style of book cover I realised all the covered were targeted at children. They had bright colours with the characters on the front. I decided to take the approach of targeting my covers for people my age who had read these book in their youth. I wanted them to look like classic book covers that would appeal to the older generation and could be seen as collectables. 
+
+Set 1 
+[The Witches](https://www.flickr.com/photos/80894004@N03/16855241141/)
+[Fantastic Mr Fox](https://www.flickr.com/photos/80894004@N03/16830422156/in/photostream/)
+[Charlie and the Chocolate Factory](https://www.flickr.com/photos/80894004@N03/16855131282/in/photostream/)
+
+Set 2
+[Charlie and the Chocolate Factory](https://www.flickr.com/photos/80894004@N03/16708024715/in/photostream/)
+[Fantastic Mr Fox](https://www.flickr.com/photos/80894004@N03/16521914139/in/photostream/)
+[The Witches](https://www.flickr.com/photos/80894004@N03/16682101596/in/photostream/)
+
 
 
