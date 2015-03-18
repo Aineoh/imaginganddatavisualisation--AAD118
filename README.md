@@ -26,3 +26,16 @@ look at different photographers that use instgram exclusively.
 Week 4
 -------
 
+Week 5
+------
+
+Week 6
+------
+
+Week 7
+------
+
+Week 8
+------
+
+
