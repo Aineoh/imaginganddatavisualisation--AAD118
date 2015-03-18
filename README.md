@@ -47,6 +47,7 @@ Week 8
 Today was the hand in for our book covers. I did two sets of covers because I coundlt commit to one direction I wanted to take. I choose to do Roald Dahl books. After doing my research into this style of book cover I realised all the covered were targeted at children. They had bright colours with the characters on the front. I decided to take the approach of targeting my covers for people my age who had read these book in their youth. I wanted them to look like classic book covers that would appeal to the older generation and could be seen as collectables. 
 
 Set 1 
+
 [The Witches](https://www.flickr.com/photos/80894004@N03/16855241141/)
 
 [Fantastic Mr Fox](https://www.flickr.com/photos/80894004@N03/16830422156/in/photostream/)
@@ -54,6 +55,7 @@ Set 1
 [Charlie and the Chocolate Factory](https://www.flickr.com/photos/80894004@N03/16855131282/in/photostream/)
 
 Set 2
+
 [Charlie and the Chocolate Factory](https://www.flickr.com/photos/80894004@N03/16708024715/in/photostream/)
 
 [Fantastic Mr Fox](https://www.flickr.com/photos/80894004@N03/16521914139/in/photostream/)
