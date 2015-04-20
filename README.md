@@ -42,6 +42,8 @@ Smartphone photography is becoming incresingly mainstream. Having a camera on yo
 
 Instagram user @juliegeb from San Francisco takes photos of the cities beautiful colours and decorative details.
 
+>“I like taking pictures of the urban walls that are a background to our life on the street. My aim is to show the beauty that >is living in the most commonplace of objects - doors and windows, or an interesting detail on a building.”
+
 ![juliegeb](https://scontent.cdninstagram.com/hphotos-xaf1/t51.2885-15/s306x306/e15/11084941_967569579920448_349761578_n.jpg)
 
 Week 4
