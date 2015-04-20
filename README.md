@@ -52,9 +52,33 @@ This week we had a talk by two guys from Fresh Made Media. There is an oppertuni
 
 This week we had a guest lecture from Richard Weston on art direction. He told us an art director doesnt make the product but gathers ideas and recognises a tone of voice for the desired product. Through art direction you can enhance the meaning of products. 
 
+We looked at different art directors such as [Josef Muller-Brockmann](http://www.typetoken.net/icon/josef-muller-brockmann-lars-muller-publishers-poster-collection-25/) who is known for his simple design. 
+
+We looked at art director [Coralie Bickford-Smith](http://cb-smith.com) who design book covers as a series. 
+
+![cbs](http://www.brainpickings.org/wp-content/uploads/2010/11/coralie_duo3.jpg)
+
+![cbs](https://gallantandjones.files.wordpress.com/2012/07/screen-shot-2012-07-06-at-11-41-53-am.png)
+
+We looked at movie sequence titles which I really enjoyed. My favorite opening titles are from American Horror Story as the really capture a feeling about the program and use imagery which is really relevant to the theme. 
+
+![ahs](http://i.huffpost.com/gen/1587755/thumbs/o-AMERICAN-HORROR-STORY-COVEN-570.jpg)
+![ahs](http://g.fastcompany.net/multisite_files/cocreate/imagecache/slideshow_large/slideshow/2012/10/1681752-slide-american-horror-fx-281.jpg)
+
 We were given our second project for this module this week. We have to design three book covers and were given a list of genres to choose from. I picked childrens classics. From what I gathered from Richards talk was that we have to plan all our book covers and gather alot of materials that inspire our vision. 
+
+We were given our new project this week which was to design three book covers from one of the following genres: 
+
+*Horror
+*Romance
+*Crime & thrillers
+*Science Fiction & fantasy
+*Children's classics
+*Alternatively, you could choose one author and look at a range of their books
+
 Week 5
 ------
+
 This week we looked at different illustrators, local and worldwide, who all have different styles and how they fit different themes. 
 
 Week 6
