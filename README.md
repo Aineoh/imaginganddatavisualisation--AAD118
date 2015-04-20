@@ -79,7 +79,23 @@ We were given our new project this week which was to design three book covers fr
 Week 5
 ------
 
-This week we looked at different illustrators, local and worldwide, who all have different styles and how they fit different themes. 
+This week we looked at different illustrators, local and worldwide, who all have different styles and how they fit different themes. I have been doing alot of research on my own this week. I have chosen to do three books by Roald Dahl. I am doing Fantastic Mr For, The Witches and Charlie and the Chocolate Factory. My reasons for choosing these books is because I read them as a child and I want to created book covers for them that are relatable to older genration who remember them as children. 
+
+Firstly I looked at the book covers that Roald Dahl currently has on offer. I did this to see what I could do differently. 
+
+![Roald dahl books](http://stmichaelscatholicprimary.co.uk/wp-content/uploads/2013/09/dahl-2.jpg)
+
+One of my favourite book illustrators is Mary Blair and I want to use influence from her work in my design. 
+
+![mary blair](https://s-media-cache-ak0.pinimg.com/736x/03/cf/86/03cf8660bff735d9cf25d38fcb2950ff.jpg)
+![mary blair](https://s-media-cache-ak0.pinimg.com/736x/a1/bc/6c/a1bc6c89d4a41f2ce2d601f7ee175836.jpg)
+
+His books are aimed heavily at children but I wanted to create a market for people my age and the books could be seen as collectables, or limited edition. I really liked the characters on the covers as I'm a big fan of Quinten Blake, but I thought I would do my own take on them. I did some research on the type of style I wanted.
+
+![book 1](https://s-media-cache-ak0.pinimg.com/736x/8c/1e/01/8c1e0146a460807f83b36e301e850851.jpg)
+![book 2](https://s-media-cache-ak0.pinimg.com/736x/13/84/12/1384124c8eeafca3f8a34ab05a37d1b3.jpg)
+
+I really liked the old style [penguin book covers](https://s-media-cache-ak0.pinimg.com/736x/da/11/b3/da11b3f51c09039cf0cce330d4059c82.jpg) and wanted to use that template to design my book covers. I also really like flat style design and I havent seen anything like that for Roald Dahl book covers before.
 
 Week 6
 ------
@@ -91,7 +107,7 @@ Lecture canceled
 
 Week 8
 ------
-Today was the hand in for our book covers. I did two sets of covers because I coundlt commit to one direction I wanted to take. I choose to do Roald Dahl books. After doing my research into this style of book cover I realised all the covered were targeted at children. They had bright colours with the characters on the front. I decided to take the approach of targeting my covers for people my age who had read these book in their youth. I wanted them to look like classic book covers that would appeal to the older generation and could be seen as collectables. 
+Today was the hand in for our book covers. I did two sets of covers because I couldn't commit to one direction I wanted to take. I choose to do Roald Dahl books. After doing my research into this style of book cover I realised all the covered were targeted at children. They had bright colours with the characters on the front. I decided to take the approach of targeting my covers for people my age who had read these book in their youth. I wanted them to look like classic book covers that would appeal to the older generation and could be seen as collectables. 
 
 Set 1 
 
@@ -109,5 +125,17 @@ Set 2
 
 [The Witches](https://www.flickr.com/photos/80894004@N03/16682101596/in/photostream/)
 
+We were given our third and final project today for this module. We have to create an infographic about the population of the world. This is going to be the most challenging project for me as I will have to organise all the data and present it in a way thats user friendly and will be easy to follow.  
 
+Week 9 
+-------
+ feltron
+ 
+Week 10
+--------
+
+Talk from Jonny Campbell from BrewBox.
+
+
+ 
 
