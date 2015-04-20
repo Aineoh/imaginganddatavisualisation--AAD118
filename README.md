@@ -29,19 +29,26 @@ I looked into different photographers that I like in order to influence the phot
 ![Brett weston](http://www.photographywest.com/pages/images/MendenhallGlacier.jpg)
 ![brett weston](http://theredlist.com/media/database/photography/history/landscape-travel/brett-weston/002_brett-weston_theredlist.png)
 
+We had a workshop after our lecture today to show us how we should save our images for web. This was very benificial for me as it showed me how to get the best resolution at the smallest image size possible.  
+
 Week 3
 -------
-This week we learned to look at different tone of voice for photos. 
 
-how instagram and social media has changed photography
+This week we looked at how instagram and social media has changed photography. Images can be taken and uploades in a matter of seconds and everything has become very fast. This has also spawned a multitude of apps which allow users to apply filters, cropping photos and adding text. Everyone is a proffessional because its been made very simple. We see certain filters called 'Summer' and 'nostalgia' which provoke feelings for a photograph and have a certain tone of voice. 
 
-look at different photographers that use instgram exclusively. 
+![summer](http://static.splashnology.com/articles/Summer-Tutorials-Bundle-Photoshop-Guides-2013/23.jpg)
+
+Smartphone photography is becoming incresingly mainstream. Having a camera on your phone is extremely handy and its compact size allows you to capture images on the go. The ability to upload images so quickly allows people to recieve gratitude and want to post more. 
+
+Instagram user @juliegeb from San Francisco takes photos of the cities beautiful colours and decorative details.
+
+![juliegeb](https://scontent.cdninstagram.com/hphotos-xaf1/t51.2885-15/s306x306/e15/11084941_967569579920448_349761578_n.jpg)
 
 Week 4
 -------
 This week we had a talk by two guys from Fresh Made Media. There is an oppertunity for a paid placement over the summer which also lands you a garenteed placement in third year. 
 
-This week we had a guest lecture from Richard Weston on art direction. He told us an art director doesnt make the product but garethers ideas and recognises a tone of voice for the desired product. Through art direction you can enhance the meaning of products. 
+This week we had a guest lecture from Richard Weston on art direction. He told us an art director doesnt make the product but gathers ideas and recognises a tone of voice for the desired product. Through art direction you can enhance the meaning of products. 
 
 We were given our second project for this module this week. We have to design three book covers and were given a list of genres to choose from. I picked childrens classics. From what I gathered from Richards talk was that we have to plan all our book covers and gather alot of materials that inspire our vision. 
 Week 5
