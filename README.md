@@ -69,12 +69,12 @@ We were given our second project for this module this week. We have to design th
 
 We were given our new project this week which was to design three book covers from one of the following genres: 
 
-*Horror
-*Romance
-*Crime & thrillers
-*Science Fiction & fantasy
-*Children's classics
-*Alternatively, you could choose one author and look at a range of their books
+* Horror
+* Romance
+* Crime & thrillers
+* Science Fiction & fantasy
+* Children's classics
+* Alternatively, you could choose one author and look at a range of their books
 
 Week 5
 ------
