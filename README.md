@@ -134,6 +134,9 @@ This week I looked at different infographic/ data visualisation styles.
 
 ![foot infographic](https://s-media-cache-ak0.pinimg.com/474x/84/07/40/840740f8386fe9f4afbeb01680550a8f.jpg)
 
+I liked this style, were they use pointilism and the size of points to represent what is used most in the chart. As our project is population I think this would be great to use inside the world.
+
+
  feltron
  
 Week 10
