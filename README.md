@@ -130,8 +130,9 @@ We were given our third and final project today for this module. We have to crea
 Week 9 
 -------
 
-This week I looked at different infographic styles. 
+This week I looked at different infographic/ data visualisation styles. 
 
+![foot infographic](https://s-media-cache-ak0.pinimg.com/474x/84/07/40/840740f8386fe9f4afbeb01680550a8f.jpg)
 
  feltron
  
