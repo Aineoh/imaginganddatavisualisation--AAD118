@@ -38,7 +38,7 @@ This week we looked at how instagram and social media has changed photography. I
 
 ![summer](http://static.splashnology.com/articles/Summer-Tutorials-Bundle-Photoshop-Guides-2013/23.jpg)
 
-Smartphone photography is becoming incresingly mainstream. Having a camera on your phone is extremely handy and its compact size allows you to capture images on the go. The ability to upload images so quickly allows people to recieve gratitude and want to post more. 
+Smartphone photography is becoming incresingly mainstream. Having a camera on your phone is extremely handy and its compact size allows you to capture images on the go. The ability to upload images so quickly allows people to recieve gratitude and want to post more. The Instagram app allows anyone to capture images from around the world and share them immediately.
 
 Instagram user @juliegeb from San Francisco takes photos of the cities beautiful colours and decorative details.
 
@@ -129,6 +129,10 @@ We were given our third and final project today for this module. We have to crea
 
 Week 9 
 -------
+
+This week I looked at different infographic styles. 
+
+
  feltron
  
 Week 10
