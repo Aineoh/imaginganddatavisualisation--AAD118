@@ -50,6 +50,9 @@ I took a trip to Krakow in Poland over this semester and took some photos of the
 
 Since I was taking photos of castles I researched a photographer that takes photos only of castles. [Tony Howell](http://www.tonyhowell.co.uk/new/castlephotographs.htm) is an English photographer and his photos of castles are really inspiring. He captures them from far away and uses the natural light to enphasise the castle. 
 
+![castle](http://www.tonyhowell.co.uk/corfecastleDR2.jpg)
+![castle](http://www.tonyhowell.co.uk/new/5489.jpg)
+
 [This is my photography album on flickr](https://www.flickr.com/photos/80894004@N03/sets/72157650857605852/) which has my 3 micro and 3 macro photos.
 
 Week 4
