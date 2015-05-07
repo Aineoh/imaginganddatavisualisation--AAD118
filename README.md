@@ -141,16 +141,18 @@ I like at other styles that can be found on my [Pinterest board](https://www.pin
 ![timeline](https://s-media-cache-ak0.pinimg.com/474x/1a/d2/90/1ad290007c49697cdd66fec78fbdd798.jpg)
 
 After alot of planning I decided to take the approach of using the top five countries in six different categories that are very important to the population. I choice to use biggest countries, languages, Religion, biggest industries, education and living conditions. The reason I choose this approach was because I found it the best way to present all the data and it was easy for people to read and understand. 
-
-![my population data vis](https://s-media-cache-ak0.pinimg.com/736x/d7/ad/72/d7ad724ebb7151944cb486aacd755899.jpg)
-
-
- feltron
  
 Week 10
 --------
 
-Talk from Jonny Campbell from BrewBox.
+This week we had a guest lecture from Jonny Campbell. Jonny graduated from IMD a few years ago and has since started his own company called [Brewbot](http://www.brewbot.io/index.html).It was really interesting see his journey and how he started his company. It was a very inspiring talk and helped me look towards my future. 
+
+This week I started working on my data visualisation. I was gathering all the information I wanted to put into my work.
+
+![population](http://i.imgur.com/ZaxPFWO.png)
+![religion](http://i.imgur.com/BcyWFG7.png)
+![top 10 biggest countires](http://i.imgur.com/5AtH4vC.png)
+![education](http://i.imgur.com/CJ8DDsr.png)
 
 
  
