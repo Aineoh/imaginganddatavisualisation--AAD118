@@ -46,6 +46,12 @@ Instagram user @juliegeb from San Francisco takes photos of the cities beautiful
 
 ![juliegeb](https://scontent.cdninstagram.com/hphotos-xaf1/t51.2885-15/s306x306/e15/11084941_967569579920448_349761578_n.jpg)
 
+I took a trip to Krakow in Poland over this semester and took some photos of the castle in the city. This added something different to my photography pool and it would be different from the other students collection of photos.
+
+Since I was taking photos of castles I researched a photographer that takes photos only of castles. [Tony Howell](http://www.tonyhowell.co.uk/new/castlephotographs.htm) is an English photographer and his photos of castles are really inspiring. He captures them from far away and uses the natural light to enphasise the castle. 
+
+[This is my photography album on flickr](https://www.flickr.com/photos/80894004@N03/sets/72157650857605852/) which has my 3 micro and 3 macro photos.
+
 Week 4
 -------
 This week we had a talk by two guys from Fresh Made Media. There is an oppertunity for a paid placement over the summer which also lands you a garenteed placement in third year. 
