@@ -134,7 +134,15 @@ This week I looked at different infographic/ data visualisation styles.
 
 ![foot infographic](https://s-media-cache-ak0.pinimg.com/474x/84/07/40/840740f8386fe9f4afbeb01680550a8f.jpg)
 
-I liked this style, were they use pointilism and the size of points to represent what is used most in the chart. As our project is population I think this would be great to use inside the world.
+I liked this style, were they use pointilism and the size of points to represent what is used most in the chart. As our project is population I think this would be great to use inside the world or the size is used to represent the world. 
+
+I like at other styles that can be found on my [Pinterest board](https://www.pinterest.com/Aineoh31/data-visualisation/). Some of my favourite styles were ones that used a timeline. I found these the easiest to follow and to take in the data that was being presented. 
+
+![timeline](https://s-media-cache-ak0.pinimg.com/474x/1a/d2/90/1ad290007c49697cdd66fec78fbdd798.jpg)
+
+After alot of planning I decided to take the approach of using the top five countries in six different categories that are very important to the population. I choice to use biggest countries, languages, Religion, biggest industries, education and living conditions. The reason I choose this approach was because I found it the best way to present all the data and it was easy for people to read and understand. 
+
+![my population data vis](https://s-media-cache-ak0.pinimg.com/736x/d7/ad/72/d7ad724ebb7151944cb486aacd755899.jpg)
 
 
  feltron
