@@ -106,6 +106,12 @@ His books are aimed heavily at children but I wanted to create a market for peop
 
 I really liked the old style [penguin book covers](https://s-media-cache-ak0.pinimg.com/736x/da/11/b3/da11b3f51c09039cf0cce330d4059c82.jpg) and wanted to use that template to design my book covers. I also really like flat style design and I havent seen anything like that for Roald Dahl book covers before.
 
+Melissa Rathbone is a graphic designer I discovered on [Pinterest](https://www.pinterest.com/pin/183803228513947719/). She has created book covers for Roald Dahl books and they are done in minimalist style. 
+
+![Melissa rathbone](https://s-media-cache-ak0.pinimg.com/736x/37/9d/d5/379dd5f002f4fee13cf1955f757c7029.jpg)
+
+I really like this style and want to use minimalist and flat design together to create my book covers.
+
 Week 6
 ------
 Lecture canceled
@@ -163,6 +169,9 @@ This week I started working on my data visualisation. I was gathering all the in
 ![top 10 biggest countires](http://i.imgur.com/5AtH4vC.png)
 ![education](http://i.imgur.com/CJ8DDsr.png)
 
+I took screen shots of the data that I'm using in my data visualisation so I had a number to work with as the population number changes constantly. 
+
+[Population data visualisation](https://www.flickr.com/photos/80894004@N03/17193948537/)
 
  
 
